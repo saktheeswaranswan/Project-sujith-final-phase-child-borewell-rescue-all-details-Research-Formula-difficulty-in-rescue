@@ -6,6 +6,6 @@
 
 # penalty from court to unclosede borewell and home industry and whom so ever it may concern 
 
-# multiple dangers like childabuse ,kidnappingand all prevention by parent monitoring in camera and displine by religion or science both common to ethics 
+# multiple dangers like snake bite ,dog bite ,wild animals  childabuse ,kidnapping and all prevention by parent monitoring in camera and displine by religion or science both common to ethics 
 
 # if any problem staement or future can be included 
